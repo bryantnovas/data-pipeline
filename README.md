@@ -2,4 +2,4 @@
 
 This project is a work in progress, please comeback at a later time!
 
-![crab_rave](https://media4.giphy.com/media/2dK0W3oUksQk0Xz8OK/giphy.gif)
+![crab_rave](https://cutewallpaper.org/21/dancing-crab-meme-gif/Crab-Rave-Dancing-Crabs-Template-GIF.gif)
